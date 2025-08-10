@@ -1,4 +1,4 @@
-<img src="https://i.pinimg.com/736x/01/bd/08/01bd081b83a15bdb5cf09c78074610bd.jpg"/></div>
+<img src="https://i.pinimg.com/1200x/ca/40/33/ca4033528739712a2836a0efaebe403f.jpg"/></div>
 
 ⚠︎ 𝙏𝙝𝙞𝙨 𝙪𝙨𝙚𝙧 𝙞𝙨 𝙖 𝙢𝙚𝙖𝙣 𝙖𝙨𝙨𝙝𝙤𝙡𝙚.
 
