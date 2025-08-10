@@ -1,1 +1,1 @@
-<img src="blob:chrome-untrusted://media-app/9340fc15-db04-4f66-9d14-cb3d0fe34259"/></div>
+<img src="https://lens.usercontent.google.com/image?vsrid=CMyWvbWki7SNZBACGAEiJDk1ZjU2ZGUyLTJkNDAtNDgxNi04ODE5LWVkOGQyMDYxODA5MDIGIgJ1ZygEOPSbjbDqgI8D&gsessionid=55CMMwcodYhJe_afqQmJytqaPaZa6vJ0vHDvIbvJCg4UrkGHAikAuQ"/></div>
