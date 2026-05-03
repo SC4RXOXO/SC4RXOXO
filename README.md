@@ -8,4 +8,4 @@
 
 ⚠︎𝙆𝙖𝙩𝙨𝙪𝙠𝙞 𝘽𝙖𝙠𝙪𝙜𝙤 𝙛𝙞𝙘𝙩𝙠𝙞𝙣⚠︎
 <img src="https://i.pinimg.com/1200x/9f/af/4a/9faf4a4a9950ab08a72ef3b2f5da02bc.jpg"/></div>
-https://spotify-github-profile.kittinanx.com
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xau3ylll2c7dp4tooeef3omtnq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=ff0a0a)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xau3ylll2c7dp4tooeef3omtnq&redirect=true)
