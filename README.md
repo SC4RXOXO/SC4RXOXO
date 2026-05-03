@@ -5,7 +5,7 @@
 ⚠︎ 𝙏𝙝𝙞𝙨 𝙪𝙨𝙚𝙧 𝙝𝙖𝙨 𝙖𝙣 𝙚𝙜𝙤.
 
 <img src="https://i.pinimg.com/736x/54/30/0d/54300d022780134d0cba02b32c10f704.jpg"/></div>
-
 ⚠︎𝙆𝙖𝙩𝙨𝙪𝙠𝙞 𝘽𝙖𝙠𝙪𝙜𝙤 𝙛𝙞𝙘𝙩𝙠𝙞𝙣⚠︎
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xau3ylll2c7dp4tooeef3omtnq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=ff0a0a)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xau3ylll2c7dp4tooeef3omtnq&redirect=true)
 <img src="https://i.pinimg.com/1200x/9f/af/4a/9faf4a4a9950ab08a72ef3b2f5da02bc.jpg"/></div>
