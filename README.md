@@ -4,7 +4,7 @@
 
 ⚠︎ 𝙏𝙝𝙞𝙨 𝙪𝙨𝙚𝙧 𝙝𝙖𝙨 𝙖𝙣 𝙚𝙜𝙤.
 
-<img src="https://i.pinimg.com/736x/54/30/0d/54300d022780134d0cba02b32c10f704.jpg"/></div>
+<img src="https://media.discordapp.net/attachments/1532764105515995226/1532783408210510096/358_20260730184808.png?ex=6a6e1b4a&is=6a6cc9ca&hm=7e8b199f627079b8eaf43864ac8e27eb923c6d9b7f3c6e700842d7c2a2ada0b9&=&format=webp&quality=lossless&width=1208&height=1208"/></div>
 
 ⚠︎𝙆𝙖𝙩𝙨𝙪𝙠𝙞 𝘽𝙖𝙠𝙪𝙜𝙤 𝙛𝙞𝙘𝙩𝙠𝙞𝙣⚠︎
 
